@@ -3,9 +3,13 @@
 I'm anotter random dev, a person working to be a gamedev one day, I don't have much under my belt, but eventually I'll have
 
 I'm currently mastering godot
+
 Currently on highschool, but on my last year of it
+
 My current project is my highschool finals game
+
 Ask me about games and cooking, both are things I really like
+
 
 if we work together, I hope to help as much as i can!
 
