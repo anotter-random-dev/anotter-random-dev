@@ -10,7 +10,7 @@ My current project is my highschool finals game
 
 Ask me about games and cooking, both are things I really like
 
-if you want to see the stuff I already did, here's a link to my itch.io page: 
+if you want to see the stuff I already did, here's a link to my itch.io page: https://anotter-random-guy.itch.io/
 
 if we work together, I hope to help as much as i can!
 
