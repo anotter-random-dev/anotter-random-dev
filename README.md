@@ -4,9 +4,9 @@ I'm anotter random dev, a person working to be a gamedev one day, I don't have m
 
 I'm currently mastering godot
 
-Currently on highschool, but on my last year of it
+Currently on college, just begun
 
-My current project is my highschool finals game
+Don't have a current project yet
 
 Ask me about games and cooking, both are things I really like
 
