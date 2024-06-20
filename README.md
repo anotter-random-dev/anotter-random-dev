@@ -6,7 +6,7 @@ I'm currently mastering godot
 
 Currently on college, just begun
 
-Don't have a current project yet
+Currently working in a rougue like game, don't have enough information to show yet, but it's gonna be good
 
 Ask me about games and cooking, both are things I really like
 
